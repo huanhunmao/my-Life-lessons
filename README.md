@@ -6,7 +6,10 @@
 
 读书心得也会在此展示
 
-1、
+1、Do not make me think 读书笔记
+
+ https://juejin.cn/post/6913509805546176520/
+ 
 
 2、
 
